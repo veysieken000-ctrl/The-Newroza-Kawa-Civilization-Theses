@@ -1,5 +1,4 @@
 ESMÂ, EHAD VE BİLGİNİN İŞLENMESİ: BOYUTSAL DÜZENİN ONTOLOJİK TEMELİ
-(Oxford–Harvard düzeyinde kuramsal bölüm — revize edilmiş tam versiyon)
 1. Ontolojik Başlangıç: Varlık = Bilgi
 Hebûn ontolojisinin temel önerisi:
 Varlık, düzenlenmiş bilgidir.
