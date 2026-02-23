@@ -1,5 +1,5 @@
 ÜST SİSTEM İLKESİ VE BOYUTSAL GENİŞLEME
-(Hebûn Ontolojisi için zincirin devamı — tekrar içermeyen teorik çekirdek bölüm)
+
 1. Üst Sistem İlkesi
 Hebûn ontolojisinin merkezi kabulü şudur:
 Hiçbir sistem kendi kendini tam olarak açıklayamaz; her sistem üst bir sistem içinde işler.
