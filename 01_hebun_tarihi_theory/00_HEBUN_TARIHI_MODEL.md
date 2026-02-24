@@ -139,6 +139,81 @@ birey → aile → toplum → kültür
 ➡ doğanın içinde bir tür olmaktan çıkar,
 ➡ medeniyet potansiyeline dönüşür.
 
+VARLIK TARİHİ — III
+Ahlâktan Hükme Geçiş
+(Hz. İbrahim’den Hz. Musa’ya Ontolojik Eşik)
+1. Tarihte Eşik Kavramı
+İnsanlık tarihi düz bir çizgi değildir; ontolojik eşiklerden oluşur.
+Bu eşikler:
+➡ varlık düzeninin yeni bir seviyeye geçişidir.
+Bu dönemde:
+Hz. İbrahim → ahlâkın merkezleşmesi
+Hz. Musa → hükmün sistemleşmesi
+olarak görünür.
+Rasterast yaklaşımında:
+ahlâk bireyi kurar
+hüküm toplumu korur
+2. Hz. İbrahim: Ahlâkın Merkeze Yerleşmesi
+Hz. İbrahim “tek başına bir ümmet” olarak temsil edilir.
+Bu:
+➡ bireysel ahlâkın toplumsal model hâline gelmesidir.
+Hebûn açısından:
+mücadele güçle değil hakikatledir
+put kırma → zihinsel bağımsızlıktır
+merkez tekrar anlamla doldurulur
+Bu dönem:
+➡ 1. Evre’nin olgun hâlidir.
+3. Soyun Devamı ve Toplumsal Kimlik
+Toplum büyüdükçe:
+yorumlar artar
+farklı anlayışlar oluşur
+ahlâk tek başına yeterli olmamaya başlar
+Bu aşama:
+➡ hükmün doğuşuna zemin hazırlar.
+4. Ahlâkın Sınırları
+Toplum genişlediğinde:
+suç tanımı belirsizleşir
+güçlü yorum üstünlüğü kurar
+adalet kişisel algıya bağlı kalır
+Bu bir başarısızlık değil:
+➡ yeni aşamaya geçme zorunluluğudur.
+İnsanlık:
+➡ 2. Evre’nin eşiğine gelir.
+5. Hz. Musa: Hükmün Doğuşu
+Hz. Musa ile birlikte:
+➡ hüküm sistemi ortaya çıkar.
+Hükmün işlevi:
+ahlâkı iptal etmek değildir
+onu koruyacak sınırlar oluşturmaktır
+Bu aşamayla:
+helal–haram ayrımı
+suç–ceza sistemi
+ortak yasa
+oluşur.
+6. 1. Evre → 2. Evre Geçişi
+Bu dönüşüm:
+❌ yozlaşma değil
+✔ olgunlaşmadır.
+Evre
+Özellik
+1. Evre
+Saf fıtrat, bireysel ahlâk
+2. Evre
+Kurumsal sorumluluk ve düzen
+Hz. İbrahim → ahlâkı başlatır
+Hz. Musa → ahlâkı sistemleştirir.
+7. Yeni Bilinç Düzeyi
+Hükümle birlikte insanlık:
+➡ “iyi olmaktan”
+➡ “adil olmaya” geçer.
+Adalet:
+ahlâkın toplumsal biçimidir
+hüküm olmadan sürdürülemez.
+8. Sonuç
+Bu süreç şunu gösterir:
+ahlâk merkezdir
+hüküm onu koruyan çerçevedir
+Denge bozulduğunda tarih yeni bir evreye geçecektir.
 
 
 
