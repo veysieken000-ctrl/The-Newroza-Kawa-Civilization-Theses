@@ -68,4 +68,4 @@ Tarih olay merkezli değil, ontolojik bilinç sürecidir.
 
 
 
-feat(history): Varlık Tarihi II bölümü Hebûn modeli altında eklendi
+
