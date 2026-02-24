@@ -519,6 +519,66 @@ Bundan sonra tarih:
 ➡ öğretim değil
 ➡ tanıklık sürecidir.
 
+HEBÛN TARİH MODELİ — ÇEKİRDEK TEORİ
+1. Tarihin Gerçek Tanımı
+Tarih, olayların kronolojisi değildir.
+Tarih:
+➡ anlam üreten bilinçli öznenin, varlıkla kurduğu ilişkinin kaydıdır.
+Bu nedenle:
+biyolojik yaşam → doğa tarihidir
+bilinçli sorumluluk → varlık tarihidir.
+Tarihi başlatan şey doğum değil, sorumluluktur.
+2. İnsan Neden Merkezdedir?
+Hebûn perspektifinde insan:
+doğanın sahibi değil,
+varlığın okuyucusudur.
+İnsan:
+isim verir,
+anlamlandırır,
+yön seçer.
+Bu seçimle birlikte:
+➡ zaman etik hâle gelir.
+3. 1. Evre ve 2. Evre Yasası
+Tarih iki temel hareketle ilerler:
+1. Evre
+saflık
+iç denge
+ahlâkın doğal hâli
+2. Evre
+bilinçli düzen
+kurumsal yapı
+toplumsal sorumluluk
+Medeniyet:
+➡ 1. Evre kaybolmadan
+➡ 2. Evre olgunlaştığında doğar.
+4. Çöküş Yasası
+Hebûn modeline göre hiçbir medeniyet dışarıdan yıkılmaz.
+Çöküş sırası şöyledir:
+ahlâk merkezden çıkar
+→ bilgi hikmetten kopar
+→ ekonomi amaç olur
+→ toplum çözülür
+Bu yasa:
+➡ tarihsel değil, ontolojik bir zorunluluktur.
+5. Çıkış Yasası
+Çıkış yeni bir sistem kurmak değildir.
+Çıkış:
+➡ merkezin yeniden kurulmasıdır.
+Formül:
+ahlâk merkezde
+→ bilgi tanıklık olur
+→ güç sınır kazanır
+→ ekonomi emanet hâline gelir.
+6. Son İlke (Hebûn Tezi)
+Varlık tarihi şu gerçeği gösterir:
+güç yükseltmez
+bilgi tek başına kurtarmaz
+ekonomi taşıyamaz
+Yükselten tek unsur:
+➡ ahlâkın merkezde kalmasıdır.
+Tarih bu yüzden:
+➡ ilerleme değil, denge arayışıdır.
+
 
 
 
