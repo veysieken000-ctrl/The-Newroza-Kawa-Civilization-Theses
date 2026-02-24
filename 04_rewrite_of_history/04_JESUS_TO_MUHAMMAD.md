@@ -8,8 +8,7 @@ Bu noktada insanlık:
 yasa sahibi,
 fakat ahlâkî yorulma yaşayan bir evreye girer.
 Yeni ihtiyaç:
-Id="t4n7b1"
-Kodu kopyala
+
 hükmü değil, hükmün ruhunu yeniden hatırlatmaktır.
 2. İsa Dönemi: Ahlâkın Geri Çağrılması
 İsa’nın tarihsel konumu:
