@@ -215,6 +215,79 @@ ahlâk merkezdir
 hüküm onu koruyan çerçevedir
 Denge bozulduğunda tarih yeni bir evreye geçecektir.
 
+VARLIK TARİHİ — IV
+Hükmün Kurumsallaşması
+(Hz. Musa’dan Hz. Davud ve Hz. Süleyman’a)
+1. Hüküm Ne Zaman Sınanır?
+Hz. Musa ile birlikte insanlık hükümle tanışmıştır.
+İlahi yasa, ahlâkı koruyan sınırlar oluşturur.
+Ancak hüküm insan eliyle uygulanmaya başladığında yeni bir imtihan doğar:
+hüküm adaleti mi güçlendirecek?
+yoksa güç hükmü mü yönetecek?
+Bu evre:
+➡ hükmün teoriden pratiğe geçişidir.
+2. Hz. Musa Sonrası: Hüküm Var, İstikrar Yok
+Toplum artık yasa sahibidir; fakat:
+ahdin bozulması
+dünyevîleşme
+yasa karşısında direnç
+görülür.
+Bu dönem:
+➡ 2. Evre’nin erken aşamasıdır.
+Hüküm vardır ama ahlâk olgunluğu tam değildir.
+3. Krallık Talebi: Gücün Doğuşu
+Toplum merkezi otorite talep etmeye başlar.
+Bu, tarihsel bir kırılmadır:
+yasa tek başına yeterli görülmez
+güvenlik için güç aranır
+Riskler:
+hükmün adaletten kopması
+gücün kutsallaştırılması.
+4. Hz. Davud: Hüküm ve Ahlâk Dengesi
+Hz. Davud hem peygamber hem hükümdardır.
+Bu aşamada:
+adalet sistem hâline gelir
+hüküm ahlâkla birlikte yürür
+Temel ilke:
+➡ hatasızlık değil, sorumluluk esastır.
+Hüküm ilk kez:
+✔ ahlâk tarafından kontrol edilir.
+5. Hz. Süleyman: Hükmün Zirvesi
+Hz. Süleyman döneminde hüküm:
+bilgi
+güç
+ekonomi
+yönetim
+ile birleşir.
+Bilgi artık:
+yasa bilgisi değil
+yönetim ve hikmet bilgisi hâline gelir.
+Bu dönem:
+➡ hükmün en geniş ölçekli tezahürüdür.
+6. Zirvedeki Tehlike
+Bu evre şunu öğretir:
+yasa tek başına yeterli değildir
+güç kendiliğinden adil olmaz
+Rasterast ilkesine göre:
+➡ hüküm ahlâktan koparsa kendi çöküşünü hazırlar.
+7. Tarihsel Model
+Figür
+Temsil
+Hz. Musa
+Yasa
+Hz. Davud
+Adalet
+Hz. Süleyman
+Hikmetli Güç
+Bu üçlü:
+➡ insanlığın yönetim deneyiminin temel modelidir.
+8. Sonuç
+Bu dönem üç ders bırakır:
+yasa ahlâk için vardır
+güç hikmetle dengelenmelidir
+adalet merkezden uzaklaşırsa hüküm çürür
+Böylece tarih:
+➡ ahlâkın yeniden merkeze çağrıldığı sonraki evreye geçer.
 
 
 
