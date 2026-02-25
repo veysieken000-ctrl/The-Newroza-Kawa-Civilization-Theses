@@ -1141,3 +1141,149 @@ yere saplanmış da değildir.
 İnsan:
 
 Yer ile gök arasında tanıklık taşıyan varlıktır.
+
+7 YER – 7 GÖK KATMANI
+(Hebûn Katmanlı Yer–Gök Düzeni içinde Boyutsal Eşleşme)
+1. Giriş
+Kur’an’da tekrar eden:
+yedi gök
+yerden de onların benzeri
+ifadeleri, Rasterast modelinde evrenin katmanlı yapısının temel referansıdır.
+Kur’an:
+“Allah yedi göğü ve yerden de bir o kadarını yaratandır.”
+(Talâk 65:12)
+Bu ayet, yer ve göğün:
+
+eşit sayıda ontolojik katman içerdiğini
+gösterir.
+Rasterast okuması:
+sayı yalnızca nicelik değildir
+düzen ve katmanlaşma prensibidir
+2. Temel İlke
+Rasterast’a göre:
+Id="katman_02"
+Kodu kopyala
+Yer = Öz’ün etki alanı
+Gök = Düzenin genişleme alanı
+Bu nedenle:
+Yer → içten dışa yükselir
+Gök → dıştan kuşatır
+3. 7 Yer Katmanı (İnsanın İçten Dışa Yapısı)
+Yer katmanları insan merkezli okunur.
+1. Katman — Fizik
+beden
+madde
+hareketttiği en alt düzey
+2. Katman — Biyoloji
+yaşam
+büyüme
+türsel düzen
+Bitkiler ve canlılık burada açığa çıkar.
+3. Katman — Duygu
+yönelim
+arzu
+korku
+Özün ilk etkileri burada görünür olur.
+4. Katman — Akıl (Zihin)
+düşünme
+anlamlandırma
+karşılaştırma
+Bu katman:
+Id="katman_04"
+Kodu kopyala
+göğe açılan ilk bilinç düzeyidir.
+5. Katman — Ahlak (Tanıklık)
+iyi–kötü ayrımı
+sorumluluk
+tercih
+Kur’an’daki emanet burada gerçekleşir.
+6. Katman — Boyutsal Geçiş (Berzah Eşiği)
+dünya ile sonrası arasındaki sınır
+zamanın çözülmeye başladığı alan
+Burada insan:
+
+4. boyuttan ayrılır.
+7. Katman — Ayrım Alanı
+cennet
+cehennem
+araf
+Bu, sonuç katmanıdır.
+4. 7 Gök Katmanı (Dış Düzen)
+Gök katmanları:
+evrenin dış düzeni
+kuşatıcı sistem
+olarak okunur.
+1. Gök — Atmosfer / yakın gök
+2. Gök — Kozmik düzen
+3. Gök — Yıldız sistemleri
+4. Gök — Galaktik yapı
+5. Gök — Kozmik ölçek düzen
+6. Gök — Hüküm düzeni
+7. Gök — Mutlak kuşatma (Arş’a yakın düzey)
+Kur’an:
+“Yedi göğü birbiriyle uyumlu yaratan O’dur.”
+(Mülk 67:3)
+5. Yer ve Gök Eşleşmesi
+Rasterast modeli:
+
+İç katman ↑ yükselir
+Dış katman ↓ kuşatır
+Tablo:
+Yer
+Gök
+Fizik
+Yakın gök
+Biyoloji
+Kozmik düzen
+Duygu
+Yıldız düzeni
+Akıl
+Galaktik düzen
+Ahlak
+Hüküm düzeni
+Berzah
+Geçiş katmanı
+Ayrım
+Kuşatıcı son düzen
+6. Anne Rahmi → Dünya → Ahiret Zinciri
+Rasterast’ta:
+
+Rahim = küçük yer
+Dünya = büyük yer
+Ahiret = ayrım alanı
+Bu yüzden:
+doğum → ilk geçiş
+ölüm → ikinci geçiş
+aynı modelin iki versiyonudur.
+7. Mikro → Makro İlke
+Atomdan insana aynı yapı:
+
+çekirdek → katmanlar
+merkez → çevre
+yer → gök
+Bu nedenle Rasterast:
+sembolik değil,
+yapısal okuma önerir.
+8. 6+TEK Modeli ile Bağlantı
+İnsan:
+
+6 boyut + TEK merkez
+ile tanımlanır.
+katman:
+insanın değil,
+hükmün alanıdır.
+Yani:
+
+6 + TEK = insan
+7 = nihai düzen
+9. Sonuç
+Kur’an’daki:
+yedi yer
+yedi gök
+ifadesi Rasterast modelinde:
+
+insanın iç katmanları ile
+kozmosun dış katmanlarının
+birbirine aynalanmasıdır.
+İnsan küçük evrendir.
+Yer içte başlar, göğe doğru açılır.
