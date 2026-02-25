@@ -164,6 +164,184 @@ Bu yasa:
 
 yer–gök düzeninin toplum seviyesindeki karşılığıdır.
 
+## XI. BİREYSEL AHLAKİ BOZULMA VE SONUÇLARI
+
+Kur’an’da sadece toplumların değil,
+bireyin ahlaki çözülmesi de
+ontolojik sonuçlar doğuran bir süreç olarak anlatılır.
+
+Bu sonuçlar:
+- bazen dünyevî sıkıntı,
+- bazen psikolojik daralma,
+- bazen hesap tehdidi şeklinde görünür.
+
+---
+
+### 1. Kibir (Tekebbür)
+
+Temel sorun:
+
+- insanın kendini merkeze koyması
+- ölçüyü reddetmesi
+
+Ontolojik sonuç:
+
+- hakikati görememe
+- kalbin mühürlenmesi
+
+Örnek kıssa:
+- İblis (A‘raf 7/12–18)
+- Karun (Kasas 28/76–82)
+
+Ayrıntı için:
+- Lokman 31/18
+- Nahl 16/23
+- Mümin 40/35
+
+---
+
+### 2. Zulüm ve Haksızlık
+
+Temel sorun:
+
+- güç veya imkânın sınırı aşması
+
+Sonuç:
+
+- iç huzurun kaybı
+- toplumsal izolasyon
+- ilahi hesap tehdidi
+
+Örnek:
+- Firavun kişisel zorbalığı
+
+Ayrıntı:
+- İbrahim 14/42
+- Şura 42/42
+- Bakara 2/254
+
+---
+
+### 3. Nankörlük (Küfrân-ı Nimet)
+
+Sorun:
+
+- nimeti görmezden gelme
+- sahipliği mutlaklaştırma
+
+Sonuç:
+
+- daralma
+- bereketin çekilmesi
+
+Örnek:
+- Sebe halkı (Sebe 34/15–19)
+
+Ayrıntı:
+- İbrahim 14/7
+- Nahl 16/112
+
+---
+
+### 4. Şehvetin Ölçüsüzleşmesi
+
+Sorun:
+
+- arzunun sınır tanımaması
+
+Sonuç:
+
+- kişilik çözülmesi
+- toplumdan kopuş
+
+Atıf:
+- Yusuf kıssası (Yusuf 12)
+- Lut kavmi bireysel arka plan
+
+Ayrıntı:
+- Furkan 25/43
+- Casiye 45/23
+
+---
+
+### 5. Yalan ve İkiyüzlülük
+
+Sorun:
+
+- hakikati bilerek çarpıtma
+
+Sonuç:
+
+- iç bütünlüğün bozulması
+- güven kaybı
+
+Örnek:
+- Münafık tipolojisi
+
+Ayrıntı:
+- Bakara 2/8–16
+- Tevbe 9/67–77
+- Münafikun 63
+
+---
+
+### 6. Ölçü ve Tartıda Hile
+
+Sorun:
+
+- ekonomik ahlakın bozulması
+
+Sonuç:
+
+- toplumsal güvenin çökmesi
+
+Örnek:
+- Medyen halkı / Hz. Şuayb
+
+Ayrıntı:
+- Hud 11/84–85
+- Mutaffifin 83/1–3
+
+---
+
+### 7. Gıybet, Suizan ve Ahlaki Çürüme
+
+Sorun:
+
+- görünmeyen sosyal yıkım
+
+Sonuç:
+
+- toplumun içten çözülmesi
+
+Ayrıntı:
+- Hucurat 49/10–12
+- Nur 24/15–19
+
+---
+
+## XII. ORTAK BİREYSEL YASA
+
+Kur’an’daki bireysel uyarıların ortak sonucu:
+
+- ahlaki bozulma → kalbin daralması
+- kalbin daralması → hakikatten uzaklaşma
+- hakikatten uzaklaşma → hükme yaklaşma
+
+---
+
+## XIII. RASTERAST YORUMU
+
+Toplumun çöküşü,
+önce bireyde başlar.
+
+Bireysel ahlak:
+- merkezin çekirdeğidir.
+
+Çekirdek bozulursa:
+→ toplumda hüküm süreci başlar.
+
+
 ## VIII. KUR’AN’DA AHLAKI BOZULMUŞ TOPLUMLAR
 
 Kur’an’da toplumların helâki,
