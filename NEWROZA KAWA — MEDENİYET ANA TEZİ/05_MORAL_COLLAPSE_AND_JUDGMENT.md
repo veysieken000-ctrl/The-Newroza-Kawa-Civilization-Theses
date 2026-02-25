@@ -893,3 +893,118 @@ Rasterast modeli açısından:
 Ölüm = Son değil
 Ölüm = Katman değişimidir
 
+KABİR → BERZAH → DİRİLİŞ ZİNCİRİ
+(Rasterast Katmanlı Yer–Gök Modeli ile Boyutsal Geçiş)
+1. Giriş
+Kur’an’da ölüm sonrası süreç tek aşama değildir.
+Rasterast modelinde insanın geçişi üç temel evrede gerçekleşir:
+
+Kabir → Berzah → Diriliş (D6 Ayrımı)
+Bu zincir:
+ontolojik dönüşüm sürecidir
+varlığın katman değiştirmesidir
+tanıklığın açığa çıkmasıdır
+2. Kabir Nedir? (İlk Ayrışma)
+Kabir yalnızca fiziksel toprak değildir.
+Kur’an’da:
+“Sizi yerden yarattık, yine ona döndüreceğiz…”
+(Tâhâ 20:55)
+Rasterast yorumuna göre:
+Kabir:
+
+D1 + D2 çözülme alanıdır
+Yani:
+Fizik beden çözülür
+Biyolojik organizma sona erer
+Fakat:
+Zihin ve tanıklık tamamen yok olmaz.
+Kabir = fiziksel bağların kopma evresi.
+3. Kabir Boyutu (Rasterast Formülü)
+
+İnsan = D1 + D2 + D3 + D4 + D5 + D6
+Ölümle:
+
+D1 → çözülür
+D2 → çözülür
+D3 → perde değiştirir
+Sonuç:
+
+Kabir = Fiziksel katmanın kapanışı
+4. Berzah: Geçişin Açılması
+Kabirden sonra:
+“Onların önünde diriltilecekleri güne kadar bir berzah vardır.”
+(Mü’minûn 23:100)
+Rasterast açısından:
+
+Kabir = kapanış
+Berzah = geçiş
+Berzah:
+zaman algısının değiştiği alan
+tanıklık verilerinin ayrışmaya başladığı eşik
+5. Berzahın İç İşleyişi (Zanistarast Okuması)
+Zanistarast bilimine göre:
+İnsan dünyada yalnız yaşamaz → kayıt üretir.
+Berzah:
+
+Tanıklığın görünür hâle gelmesi
+Burada:
+bahaneler yoktur
+sosyal maskeler yoktur
+sadece ontolojik sonuç vardır
+6. Diriliş (Yeni Boyut Açılımı)
+Kur’an:
+“Sonra sizi tekrar diriltecektir.”
+(Bakara 2:28)
+Rasterast yorumu:
+Diriliş:
+
+D1 dönüşü değil,
+D6 açılımıdır.
+Yani:
+aynı fizik yapıya dönüş değil
+yeni boyutsal açılım
+7. D6 — Ayrım Boyutu
+Dirilişten sonra:
+
+D6 = Nihai Ayrım
+Üç ana yol:
+Cennet → uyumlu tanıklık
+Cehennem → çatışmalı tanıklık
+Araf → denge sınırı
+8. Geçişin Ahlakla İlişkisi
+Kur’an’ın emanet ayeti:
+“İnsan emaneti yüklendi; gerçekten çok zalim ve cahildir.”
+(Ahzâb 33:72)
+Rasterast formülü:
+
+Ahlak (D5) → Berzah deneyimini belirler
+Yani:
+
+D5 dengeli → geçiş yumuşak
+D5 bozuk → geçiş zorlayıcı
+9. Mikro → Makro Yasası
+Rasterast’ta aynı yasa:
+bireyde
+toplumda
+medeniyette işler.
+Nasıl birey:
+
+Kabir → Berzah → Ayrım
+yaşıyorsa,
+medeniyetler:
+
+Çöküş → Geçiş → Yeni Merkez
+yaşar.
+10. Sonuç
+Rasterast zinciri:
+
+Kabir = Fizik çözülme
+Berzah = Tanıklık açılımı
+Diriliş = Ayrım boyutu
+Ölüm:
+yokluk değildir
+boyut kapanışı ve açılışıdır.
+İnsan:
+sadece yaşayan değil,
+katman değiştiren varlıktır.
+
