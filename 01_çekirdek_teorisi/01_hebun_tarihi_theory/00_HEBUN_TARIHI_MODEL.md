@@ -579,6 +579,66 @@ Yükselten tek unsur:
 Tarih bu yüzden:
 ➡ ilerleme değil, denge arayışıdır.
 
+12 KURUCU KANUN (CORE LAWS)
+1️⃣ Varlık Kanunu
+Varlık rastgele değil, merkez–çevre dengesiyle var olur.
+Merkez bozulursa çevre uzun süre ayakta kalamaz.
+2️⃣ Anlam Kanunu
+İnsan, varlığın sahibi değil; anlamlandıran tanığıdır.
+Tarih, anlam üreten bilinçle başlar.
+3️⃣ Ahlâk Merkezi Kanunu
+Her medeniyetin gerçek merkezi güç değil, ahlâktır.
+Ahlâk merkezden çıkarsa sistem çökmeye başlar.
+4️⃣ 1. Evre Kanunu
+Her başlangıç saf bilinçle doğar:
+denge
+sadelik
+iç uyum
+medeniyetin çekirdeğini oluşturur.
+5️⃣ 2. Evre Kanunu
+Düzen kaçınılmazdır:
+kurumlar
+hukuk
+yapı
+ahlâkı korumak için ortaya çıkar.
+6️⃣ Denge Kanunu
+Evre kaybolursa sistem sertleşir.
+Evre oluşmazsa sistem dağılır.
+Medeniyet:
+➡ ikisinin dengesiyle yaşar.
+7️⃣ Bilgi Kanunu
+Bilgi iki yolda ilerler:
+hakikate hizmet eden bilgi
+kontrole hizmet eden bilgi
+İkinci yol medeniyetin çöküşünü başlatır.
+8️⃣ Güç Kanunu
+Güç kendi başına adalet üretmez.
+Güç:
+➡ ancak ahlâk tarafından sınırlandığında meşrudur.
+9️⃣ Ekonomi Kanunu
+Ekonomi amaç değil, emanettir.
+Ekonomi:
+yaşamı büyütmelidir
+insanı tüketmemelidir.
+🔟 Çöküş Kanunu
+Her çöküş aynı sırayla gerçekleşir:
+ahlâk kaybı
+→ bilgi yozlaşması
+→ ekonomi bozulması
+→ toplumsal çözülme.
+1️⃣1️⃣ Dönüş Kanunu
+Çıkış yeni bir sistem kurmak değil:
+➡ merkeze geri dönmektir.
+Denge yeniden kurulduğunda toplum iyileşir.
+1️⃣2️⃣ Tanıklık Kanunu
+Tarihin son amacı hükmetmek değil, tanıklık etmektir.
+İnsan:
+varlığı anlamak
+ahlâkı taşımak
+dengeyi korumak
+için vardır.
+
+
 
 
 
