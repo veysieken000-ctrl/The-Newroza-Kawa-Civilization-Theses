@@ -1287,3 +1287,149 @@ kozmosun dış katmanlarının
 birbirine aynalanmasıdır.
 İnsan küçük evrendir.
 Yer içte başlar, göğe doğru açılır.
+
+İNSAN = KÜÇÜK YER–GÖK MODELİ
+(Hebûn Katmanlı Düzen İçinde İnsan Mikrokozmosu)
+1. Giriş
+Rasterast yaklaşımına göre insan:
+evrenden ayrı bir varlık değil,
+evrenin küçük ölçekte tekrarıdır.
+Bu nedenle:
+Id="insan_model_01"
+Kodu kopyala
+İnsan = küçük yer
+İnsan = küçük gök
+Kur’an’da insanın:
+yerle ilişkilendirilmesi,
+göklerle bağ kurulması,
+bu eşleşmenin temelini oluşturur.
+2. Yer–Gök Modelinin İnsana Yansıması
+Kur’an:
+“Yeri sizin için döşek, göğü bina yapan O’dur.”
+(Bakara 2:22)
+Rasterast okuması:
+yer → iç düzen
+gök → kuşatıcı düzen
+insanda birlikte bulunur.
+3. İnsanın Yer Katmanları (İç Alan)
+1. Fizik — Beden
+topraktan yaratılış
+madde ile temas
+
+insanın yere bağlı kısmı
+2. Biyoloji — Canlılık
+büyüme
+üreme
+organizma düzeni
+Bitkisel ve hayvani ortaklık bu katmandadır.
+3. Duygu — İç Akış
+korku
+umut
+sevgi
+yönelim
+Bu düzey:
+özün ilk hareket alanıdır.
+4. Zihin — Akıl
+düşünme
+hafıza
+analiz
+İnsan burada:
+
+yerden göğe açılmaya başlar.
+5. Ahlak — Tanıklık
+Kur’an:
+“Nefse ve onu düzenleyene…”
+(Şems 91:7)
+Ahlak katmanı:
+seçim
+sorumluluk
+emanet
+alanıdır.
+İnsan burada:
+hayvandan ayrılır.
+6. Geçiş Katmanı — Berzah Eşiği
+Dünya zamanı ile hesap zamanı arasında:
+
+ara düzlem
+bulunur.
+Ölüm sonrası ilk geçiş bu alandır.
+7. Ayrım Katmanı — Sonuç
+cennet
+cehennem
+araf
+insanın nihai konumudur.
+4. İnsanın Gök Katmanları (Dış Alan)
+İnsan sadece iç katmanlardan ibaret değildir.
+Dış dünya onun gök katmanıdır:
+aile
+toplum
+kültür
+bilgi
+medeniyet
+tarih
+kozmik düzen
+Bu nedenle:
+Id="insan_model_05"
+Kodu kopyala
+insanın göğü = yaşadığı dış düzen
+olarak okunur.
+5. Rahim → Dünya → Berzah → Ahiret Zinciri
+Rasterast modeli:
+
+Rahim = küçük yer
+Dünya = orta yer
+Berzah = geçiş
+Ahiret = ayrım
+şeklinde ilerler.
+Kur’an:
+“Sonra ona ruhundan üfledi.”
+(Secde 32:9)
+ruh:
+katmanlar arası bağdır.
+6. Neden İnsan Mikrokozmostur?
+Çünkü:
+atom merkez–çevre düzenine sahip
+hücre merkez–çevre düzenine sahip
+insan da merkez–çevre düzenine sahiptir.
+Rasterast ilkesi:
+
+küçük yapı = büyük yapının aynasıdır
+7. 6+TEK Modeli ile İnsan
+İnsan:
+Id="insan_model_08"
+Kodu kopyala
+6 boyut + TEK merkez
+yapısındadır.
+6 katman → deneyim alanı
+TEK → mutlak referans
+Bu yüzden insan:
+bağımsız değil,
+bağlı bir varlıktır.
+8. Tanıklık ve İnsan
+Kur’an:
+“Ben sizin Rabbiniz değil miyim?”
+(A‘raf 7:172)
+insanın:
+
+tanıklık varlığı
+olduğunu gösterir.
+İnsan:
+sadece yaşayan değil,
+şahitlik eden varlıktır.
+9. Mikro → Makro Sonucu
+İnsan:
+kendi iç yapısında yer–gök düzenini taşır.
+Bu nedenle:
+
+insanın bozulması = küçük evrenin bozulmasıdır
+Toplumsal krizlerin başlangıcı burada olur.
+10. Sonuç
+Rasterast modelinde:
+insan evrenden kopuk değildir,
+evrenin küçük ölçekli düzenidir.
+Yer:
+özün etki alanıdır.
+Gök:
+anlamın kuşatıcı düzenidir.
+İnsan:
+ikisini birlikte taşır.
