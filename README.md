@@ -103,3 +103,13 @@ Akademisyen okur → anlayabilir
 Normal insan okur → boğulmaz
 GitHub yıldız alma ihtimali → ciddi artar
 
+## Terminology
+
+This repository uses core Zanistarast terminology:
+
+- **Hebun** — Being / Ontology
+- **Zanabun** — Knowledge / Epistemology
+- **Mabun** — Economics / Flow
+- **Rasterast** — Governance / Control
+
+For the extended glossary, see `SOZLUK.md`.
